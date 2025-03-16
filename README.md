@@ -15,7 +15,7 @@ i don't friend very young/old ppl <br/>
 ***
 </p>
 <p align="center">
-you can go to invdrrrzim.straw.page for more info <br/>
+you can go to poiznnn.straw.page for more info <br/>
 
 </p>
 <p align="center">
