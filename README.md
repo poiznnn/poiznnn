@@ -8,7 +8,11 @@
 </p>
 <p align="center">
 local goblin<br/>
+</p>
+<p align="center">
 usually on pony.town w/ friends<br/>
+</p>
+<p align="center">
 i don't friend very young/old ppl <br/>
 
 <p align="center">
