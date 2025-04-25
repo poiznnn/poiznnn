@@ -1,11 +1,16 @@
 <p align="center">
-<img width="500" src="https://static0.gamerantimages.com/wordpress/wp-content/uploads/2022/04/devil-may-cry-nero-feature.jpg" alt="nero dmc5">
-</p>
+<img width="650" src="https://github.com/user-attachments/assets/2b8fd9a1-5978-4607-bd43-9777500e0787" alt="dmc nero">
 
+<p align="center">
+<img width="600" src="https://github.com/user-attachments/assets/f7062dcd-08cb-4903-ba5e-913f2d47ac9f" alt="dmc nero">
+
+<p align="center">
+<img width="250" src="https://github.com/user-attachments/assets/6015226d-5485-4522-909d-ce4e0d7c6710" alt="dmc nero">
+
+</p>
 <p align="center">
 19 | punkish dude | he/they <br/>
 
-  ***
 </p>
 <p align="center">
 the goblin who lives under a bridge<br/>
@@ -14,6 +19,6 @@ i don't friend very young/old ppl <br/>
 
 </p>
 <p align="center">
-<img width="20" src="https://github.com/user-attachments/assets/aa30593e-d919-4c3c-a558-b1fc25c49ca7" alt="green swirl">
+<img width="150" src="https://github.com/user-attachments/assets/6420329d-d937-4e18-ae2d-534690351ea5">
  
-</p>
+
