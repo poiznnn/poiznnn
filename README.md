@@ -1,9 +1,9 @@
 <p align="center">
-<img width="500" src="https://github.com/user-attachments/assets/7583580f-2bcb-446e-841a-ceb7ef5d9bb0" alt="gir doom">
+<img width="500" src="https://i.pinimg.com/originals/25/df/b6/25dfb61c60297d650dc509c6aceb3406.gif" alt="nero dmc5">
 </p>
 
 <p align="center">
-19 | scemo | he/they <br/>
+19 | he/they <br/>
 
   ***
 </p>
