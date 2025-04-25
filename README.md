@@ -1,5 +1,5 @@
 <p align="center">
-<img width="500" src="https://i.pinimg.com/originals/25/df/b6/25dfb61c60297d650dc509c6aceb3406.gif" alt="nero dmc5">
+<img width="500" src="https://static0.gamerantimages.com/wordpress/wp-content/uploads/2022/04/devil-may-cry-nero-feature.jpg" alt="nero dmc5">
 </p>
 
 <p align="center">
