@@ -29,6 +29,4 @@ i don't friend very young/old ppl <br/>
 <img width="150" src="https://github.com/user-attachments/assets/6420329d-d937-4e18-ae2d-534690351ea5">
 
 
-https://github.com/user-attachments/assets/4555f7e7-1126-4795-8c5c-e281d90ec634
-
 
