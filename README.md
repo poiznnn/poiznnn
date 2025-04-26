@@ -18,16 +18,17 @@ i don't friend very young/old ppl <br/>
 <p align="center">
 <img width="250" src="https://github.com/user-attachments/assets/6015226d-5485-4522-909d-ce4e0d7c6710" alt="dmc nero">
 
-
 <p align="center">
 <img width="600" src="https://github.com/user-attachments/assets/f7062dcd-08cb-4903-ba5e-913f2d47ac9f" alt="dmc nero">
 
 <p align="center">
 <img width="250" src="https://github.com/user-attachments/assets/6015226d-5485-4522-909d-ce4e0d7c6710" alt="dmc nero">
 
-
 </p>
 <p align="center">
 <img width="150" src="https://github.com/user-attachments/assets/6420329d-d937-4e18-ae2d-534690351ea5">
- 
+
+
+https://github.com/user-attachments/assets/4555f7e7-1126-4795-8c5c-e281d90ec634
+
 
