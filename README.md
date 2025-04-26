@@ -26,7 +26,7 @@ i don't friend very young/old ppl <br/>
 
 
 <p align="center">
-<img width="650" src="https://komarev.com/ghpvc/?username=poiznnn&color=green" alt="view counter">
+<img width="100" src="https://komarev.com/ghpvc/?username=poiznnn&color=green" alt="view counter">
 
 </p>
 <p align="center">
