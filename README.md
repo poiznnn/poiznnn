@@ -19,5 +19,5 @@ i don't friend very young/old ppl <br/>
 <img width="250" src="https://github.com/user-attachments/assets/6015226d-5485-4522-909d-ce4e0d7c6710" alt="dmc nero">
 
 <p align="center">
-<img width="100" src="https://komarev.com/ghpvc/?username=poiznnn&color=blue" alt="view counter">
+<img width="80" src="https://komarev.com/ghpvc/?username=poiznnn&color=blue" alt="view counter">
 
