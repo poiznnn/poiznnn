@@ -3,7 +3,7 @@
 
 </p>
 <p align="center">
-19 | punkish dude | he/they <br/>
+19 | punkish/scemo dude | he/they <br/>
 
 </p>
 <p align="center">
